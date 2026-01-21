@@ -8,4 +8,4 @@
 
 𓂃 𝐇𝐚𝐫𝐮 ♡ - 𝐈'𝐦 𝐬𝐨 𝐠𝐥𝐚𝐝 𝐈 𝐦𝐞𝐭 𝐡𝐢𝐦 𝐡𝐞 𝐢𝐬 𝐨𝐧𝐞 𝐨𝐟 𝐭𝐡𝐞 𝐛𝐞𝐬𝐭 𝐩𝐞𝐨𝐩𝐥𝐞 𝐢𝐧 𝐦𝐲 𝐥𝐢𝐟𝐞 𝐞𝐯𝐞𝐧 𝐭𝐡𝐨𝐮𝐠𝐡 𝐰𝐞 𝐝𝐨𝐧'𝐭 𝐭𝐚𝐥𝐤 𝐦𝐮𝐜𝐡 𝐰𝐞 𝐭𝐚𝐥𝐤 𝐰𝐡𝐞𝐧𝐞𝐯𝐞𝐫 𝐰𝐞 𝐜𝐚𝐧 𝐣𝐮𝐬𝐭 𝐭𝐨𝐨 𝐬𝐞𝐞 𝐡𝐨𝐰 𝐰𝐞'𝐫𝐞 𝐝𝐨𝐢𝐧𝐠 𝐛𝐮𝐭 𝐈 𝐡𝐨𝐩𝐞 𝐰𝐞 𝐜𝐚𝐧 𝐡𝐚𝐧𝐠 𝐨𝐮𝐭 𝐦𝐨𝐫𝐞!! 
 
-𓂃 𝐊𝐢𝐲𝐨/𝐀𝐝𝐚𝐜𝐡𝐢 - over all a good friend ur fun to hang out with and I enjoy talking with you hope we can stay friends ᴀɴᴅ ʙᴇᴄᴏᴍᴇ ᴄʟᴏsᴇʀ over time ^-^
+
